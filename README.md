@@ -4,21 +4,14 @@ But you will never get the same results even following the correct instructions!
 Today, i am actually selling my experience and not TUT aswell. GWLS ! :)
 
 
-
-Package includes: 25$
-
-Step-by-Step Manual,
-Obfuscator Tool,
-FUD icon Bonus Pack
-
 Package includes: 40$
 
 Exynos Lifetime Private Crypter,
 Step-by-Step Manual,
 Obfuscator Tool,
 FUD icon Bonus Pack
-
-![Alt text](https://image.ibb.co/gEDBBK/QeLcVg1.jpg)
+[![Alt Text](https://i.imgur.com/TKrSod8.jpg)](https://selly.gg/p/df612125)
+![Alt text](https://i.imgur.com/TKrSod8.jpg)
 
 BEFORE UD
 ![Alt text](https://antiscan.me/images/result/d4954b1d33e54c604a8ddab3ea79abd9.png)
