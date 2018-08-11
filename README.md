@@ -6,7 +6,7 @@ Today, i am actually selling my experience and not TUT aswell. GWLS ! :)
 
 Package includes: $40
 ...
-Exynos Lifetime Private Crypter,
+Lifetime Private Crypter,
 Step-by-Step Manual,
 Obfuscator Tool,
 FUD icon Bonus Pack
