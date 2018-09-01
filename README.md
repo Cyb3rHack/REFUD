@@ -4,9 +4,9 @@ But you will never get the same results even following the correct instructions!
 Today, i am actually selling my experience and not TUT aswell. GWLS ! :)
 
 
-Package includes: $40
+Package includes: $25
 ...
-Lifetime Private Crypter,
+Lifetime Crypter,
 Step-by-Step Manual,
 Obfuscator Tool,
 FUD icon Bonus Pack
